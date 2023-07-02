@@ -1,1 +1,1 @@
-Aspiring mathematician in Algebraic Geometry and Algebraic Number Theory
+Aspiring mathematician in Arithmetic Geometry and Representation Theory
